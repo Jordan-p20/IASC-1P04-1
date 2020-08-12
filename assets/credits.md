@@ -7,3 +7,16 @@ Attribution (3.0)
 
 ---
 
+"Alien Spaceship UFO"
+by Daniel Simon
+2020 - Licensed Under
+Creative Commons
+Attribution (3.0)
+
+---
+
+"Reverse Blip"
+by Breviceps
+
+2020 - Licensed under
+Creative Commons 0
